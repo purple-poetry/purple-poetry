@@ -5,6 +5,8 @@ Hello, i am Yuri.
 
 I am 20 yrs old, and i am a fictionkin of Yuri from DDLC.
 
+[Check out my strawpage](https://purple-poetry.straw.page/) | [Tumblr](https://www.tumblr.com/blog/purple-poetry-club)
+
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 BYI:
